@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BurritoBoy30
+- 👋 Hi, I’m Levery
 - 👀 I’m interested in YOUR MOM LMAO
-- 🌱 I’m currently learning haxe and lua
-- 📫 How to reach me: https://gamejolt.com/@BurritoBoy30
+- 🌱 I’m currently learning how to get bitches
+- 📫 How to reach me: https://twitter.com/stupid_levery
