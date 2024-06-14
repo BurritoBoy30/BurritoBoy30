@@ -1,4 +1,5 @@
-- 👋 Hi, I’m Levery
-- 👀 I’m interested in YOUR MOM LMAO
-- 🌱 I’m currently learning how to get bitches
-- 📫 How to reach me: https://twitter.com/stupid_levery
+Why are you here?
+Theres nothing here
+go away
+
+amongus
